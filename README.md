@@ -1,3 +1,3 @@
 The Hidden Wiki is often praised for its role in providing a centralized directory for websites on the dark web, making it easier for users to navigate this otherwise complex and obscure part of the internet. It serves as a valuable resource for those seeking information and services that prioritize privacy and anonymity. Additionally, the Hidden Wiki fosters a sense of community among its users by compiling a wide range of links in one accessible location, which can be particularly helpful for researchers, journalists, and activists operating in restrictive environments.
 
-Hidden Wiki v3 Onlion Link: http://zqktlwiuavvvqqt4ybvgvi7tyo4hjl5xgfuvpdf6otjiycgwqbym2qad.onion/
+Hidden Wiki v3 2024 Onlion Link: http://zqktlwiuavvvqqt4ybvgvi7tyo4hjl5xgfuvpdf6otjiycgwqbym2qad.onion/
